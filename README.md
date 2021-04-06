@@ -7,4 +7,5 @@
 - 📫 How to reach me 
 -
            Email: tholiaparul5@gamil.com
+           Linkedin: https://www.linkedin.com/in/parul-tholia-482a711b2
 
